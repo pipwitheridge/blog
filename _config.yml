@@ -1,7 +1,7 @@
 # Site settings
 title: Blog
 description: Pip's personal blog.
-url: "https://yourusername.github.io"   
+url: "https://pipwitheridge.github.io"   
 baseurl: "/blog"                        
 # Build settings
 markdown: kramdown
