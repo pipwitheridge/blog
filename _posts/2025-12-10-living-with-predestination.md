@@ -3,8 +3,6 @@ layout: post
 title: "Living With Predestination"
 ---
 
-# Living With Predestination
-
 *December 2025*
 
 Imagine a woman enters a shopping mall, pulls out a gun and shoots the first person she sees. She is guilty of a serious crime.

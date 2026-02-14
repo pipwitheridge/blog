@@ -3,8 +3,6 @@ layout: post
 title: "Human Questions"
 ---
 
-# Human Questions
-
 *October 2025*
 
 There are certain questions only humans ask, and there is something puzzling about a person who lives unruffled by them. They are the questions that look backward, forward, inward, and outward.

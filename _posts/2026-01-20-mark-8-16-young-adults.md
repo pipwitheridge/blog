@@ -3,8 +3,6 @@ layout: post
 title: "The Challenge of Mark 8–16 for Young Adults"
 ---
 
-# The Challenge of Mark 8–16 for Young Adults
-
 *January 2026*
 
 In the first half of Mark's gospel, the central question driving the entire narrative is "who is this man?" In Mark 8, Peter answers that question: "You are the Messiah." The rest of the gospel is about finding out what it means that Jesus is the Messiah.

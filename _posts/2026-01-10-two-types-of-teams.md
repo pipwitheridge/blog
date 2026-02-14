@@ -3,8 +3,6 @@ layout: post
 title: "Two Types of Teams"
 ---
 
-# Two Types of Teams
-
 *January 2026*
 
 I want to paint you a mental picture of two types of teams. Perhaps you've been a part of one of them.
