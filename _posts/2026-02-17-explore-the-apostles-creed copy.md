@@ -1,0 +1,61 @@
+---
+layout: post
+title: "Explore the Apostles' Creed"
+---
+
+*February 2026*
+
+Below is the scaffolding of a 3-week evangelistic course based on the Apostles' Creed.
+
+---
+
+# Week 1: Belief in God
+
+• Introductory / get-to-know-you question: have you ever gone on a journey?  
+• Introduction to exploring: two kinds of maps (large-scale relief map, small-scale; Bible and the Creed) – could include both map types on the screen as an example.
+• Course overview (3 week preview)  
+• Introduction to the Apostles' Creedx
+• Read the Apostles' Creed  
+• Focusing in on words "I believe in God" - creed = belief  
+• "I" is significant; it's a personal faith, not simply defined by culture or upbringing.
+• "Believe" need unpacking. It's not like saying "I believe in UFOs" or "I believe in democracy"... it's more like saying "I have faith in my car."
+• "God" needs unpacking. It's not any God; it's a particular God. It's not an absent God; it's a loving God. It's not an impotent God; it's an omnipotent God.
+• Possible verses to explore about faith/belief: Romans 4, Hebrews 11, Mark 5:25-;34
+• Possible verses to explore about God's character: Exodus 34:6-7
+• Weighing up belief in God verses agnosticism and atheism  
+— traditional arguments against God  
+— traditional arguments for God  
+• Apostles' creed doesn't give those arguments  
+• Spiritual claims & historical claims  
+• Christianity hinges on historical claims  
+• Jesus' death and resurrection in history  
+— Tom Holland Quote  
+— Biblical Quote (Luke 1:1–4; 1 John 1:1-2)  
+
+# Week 2: Father, Son, Spirit
+
+• Introductory / get-to-know-you question  
+• Course overview  
+• Read the Apostles' Creed  
+• Focusing on 3 words, Father, Son and Spirit  
+• Jesus prays to his Father and promising that he and his Father would send “another Helper” (John 14:16) 
+• Salvation scheme: the Father planning, the Son procuring, and the Spirit applying redemption. See Romans 8:1-17; 2 Corinthians 13:14; Ephesians 1:3-14; 2 Thessalonians 2:13ff.; 1 Peter 1:2. 
+• Verses explaining God as Father  
+• Verses showing Jesus as son  
+• Verses showing Spirit as distinct  
+• Trinity: not three seperate Gods, trinity. And yet, trinity blows our mind.
+• Missions of God: The Father send the Son; the Father and the Son sent the Spirit  
+• The Father made me; the Son saved me; the Spirit changes me  
+• What this means for Christian living: we can know God the Father, we can change  
+• Interview: how has life changed since becoming a Christian?  
+• Other relevant verses for this week: John 1:1–18, "Have we not all one Father? Has not one God created us?" Malachi 2:10
+
+# Week 3: Forgiveness, Resurrection, Life
+
+• Introductory / get-to-know-you question  
+• Course overview  
+• Read the Apostles' Creed  
+• Focusing on 3 words, Forgiveness, Resurrection, Life  
+• Story of forgiveness (parable of different debts)  
+• Story of resurrection ()
+• What does "life everlasting" mean? Eschatology summary  

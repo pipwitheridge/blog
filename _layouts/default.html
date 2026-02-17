@@ -8,13 +8,11 @@
 </head>
 <body>
   <h1>Blog Posts</h1>
-  <ul>
-    <ul>
       {% for post in site.posts %}
-        <li>
-          <a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a>
-        </li>
+          <div>
+              <a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a>
+          </div>
+          <br>
       {% endfor %}
-    </ul> 
 </body>
 </html>
