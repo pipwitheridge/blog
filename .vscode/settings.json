@@ -1,0 +1,56 @@
+{
+  // ---------------------------
+  // MARKDOWN-ONLY TYPOGRAPHY
+  // ---------------------------
+  "[markdown]": {
+    "editor.fontFamily": "Georgia, 'Times New Roman', serif",
+    "editor.fontSize": 19,
+    "editor.lineHeight": 30,
+    "editor.wordWrap": "on",
+    "editor.quickSuggestions": {
+      "comments": "off",
+      "strings": "off",
+      "other": "off"
+    },
+    "editor.renderWhitespace": "none",
+    "editor.scrollBeyondLastLine": false,
+    "editor.cursorBlinking": "smooth",
+    "editor.lineNumbers": "off"
+  },
+
+  // ---------------------------
+  // CLEAN WRITING ENVIRONMENT
+  // ---------------------------
+  "editor.minimap.enabled": false,
+  "editor.renderLineHighlight": "none",
+  "editor.guides.indentation": false,
+  "editor.bracketPairColorization.enabled": false,
+  "breadcrumbs.enabled": false,
+  "workbench.editor.showTabs": "single",
+  "editor.scrollbar.vertical": "hidden",
+  "editor.scrollbar.horizontal": "hidden",
+
+  // ---------------------------
+  // ZEN MODE IMPROVEMENTS
+  // ---------------------------
+  "zenMode.fullScreen": true,
+  "zenMode.hideLineNumbers": true,
+  "zenMode.centerLayout": true,
+
+  // ---------------------------
+  // MARKDOWN BEHAVIOUR
+  // ---------------------------
+  "markdown.preview.fontSize": 16,
+  "markdown.preview.lineHeight": 1.6,
+  "markdown.preview.breaks": true,
+  "markdown.preview.typographer": true,
+
+  // ---------------------------
+  // FILE BEHAVIOUR
+  // ---------------------------
+  "files.trimTrailingWhitespace": true,
+  "files.insertFinalNewline": true,
+  "zenMode.showTabs": "single"
+
+}
+

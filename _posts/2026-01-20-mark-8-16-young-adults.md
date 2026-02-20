@@ -24,3 +24,13 @@ Here I want to outline some key passages and cutting questions that may be usefu
 2. Imagine you tried to become a "servant of all" for one year. What would that look like? What about your life would change?
 
 3. What practical steps can you take in your life now to become great (as defined by Jesus)?
+
+#### Mark 11.1-12.12
+
+1. What does it mean to be productive in young adulthood?
+
+2. What is the product, or the fruits, that Jesus wants from you in your life at the moment? Are any of these fruits lacking in your life?
+
+3. Do you have a prayer life? If not, what is stopping you? If yes, what threatens to stop it?
+
+
