@@ -1,8 +1,9 @@
 # Site settings
 title: Blog
 description: Pip's personal blog.
-url: "https://pipwitheridge.github.io"   
-baseurl: "/blog"                        
+url: "https://pipwitheridge.github.io"
+baseurl: "/blog"
 # Build settings
 markdown: kramdown
 permalink: /:title/
+future: true

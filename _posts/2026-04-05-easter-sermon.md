@@ -3,7 +3,7 @@ layout: post
 title: "Easter Sermon': Mark 15–16"
 ---
 
-*February 2026*
+*April 2026*
 
 The below post is an outline for an Easter sermon on Mark 15–16
 
