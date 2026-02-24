@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Easter Sermon': Mark 15–16"
+title: "Easter Sermon: Mark 15–16"
 ---
 
 *April 2026*

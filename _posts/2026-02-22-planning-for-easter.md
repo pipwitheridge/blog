@@ -32,13 +32,31 @@ For non-Christians to discover and follow Jesus, we need to help non-Christians 
 
 ## Advertising
 
+#### What do we advertise?
+
 'Hook'–y vs. simple. Last year we went with simple: Easter at St Paul's. This year we've gone for a hook: Scary Good News. Possible advantages:
 • Ties in thematically with the end of Mark's gospel.
 • Cuts through the 'noise' of other advertising, piques interest.
 
 We won't know what works better unless we try both approaches. If we want to get better long-term, we've got to take short term risks to decide what works best.
 
-Advertise on socials – meta ads, local radius, videos, images. "What does Easter mean?"
+#### Who do we advertise to?
+
+Mandarin-speakers and English speakers.
+
+Young families.
+
+Not the skeptic, but the open.
+
+#### Where do we advertise?
+
+Advertise on socials – meta ads, local radius.
+
+Not a huge fan of door-knocking and walk-up in our area.
+
+#### How do we advertise?
+
+Videos and images. "What does Easter mean?" + "Scary Good News".
 
 Lead to a dedicated landing page with all the service times.
 
@@ -61,7 +79,7 @@ The call to action is to explore Christianity.
 
 ## Extras
 
-Possible hand-outs of Rebecca McLaughlin, *Is Easter Unbelievable?: Four Questions Everyone Should Ask About the Resurrection Story*.
+Possible hand-outs of apologetic resources (e.g. Rebecca McLaughlin, *Is Easter Unbelievable?: Four Questions Everyone Should Ask About the Resurrection Story*; Andrew Errington, *Can We Trust What The Gospels Say About Jesus?*).
 
 Interviews / Testimonies / videos
 
