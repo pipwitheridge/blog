@@ -87,35 +87,65 @@ and the life everlasting. Amen.*
 • The historical claims are there to be investigated: he was delivered over to death, he was raised to life.
 
 • The spiritual claims are there to be contemplated: he did this *for our sins* and *for our justification*.
-
 • Reflection questionfor discussion: *what questions would you like to explore?*
 
 # Week 2: Father, Son, Spirit
 
-• Introductory / get-to-know-you question: three words to describe yourself
-• Course overview
+• Introductory / get-to-know-you question: if you had to describe yourself only using three words, what words would you use?
+
+— Week 1. Belief in God
+— Week 2. Father, Son, Spirit
+— Week 3. Life Everlasting
+
 • Read the Apostles' Creed
-• Focusing on 3 words, Father, Son and Spirit
-• Father = provider; we are dependant on God for everything, including our existence
-• Jesus prays to his Father and promising that he and his Father would send “another Helper” (John 14:16)
-• Salvation scheme: the Father planning, the Son procuring, and the Spirit applying redemption. See Romans 8:1-17; 2 Corinthians 13:14; Ephesians 1:3-14; 2 Thessalonians 2:13ff.; 1 Peter 1:2.
-• Verses explaining God as Father
-• the Father loves the Son (John 3:35; 5:20) and makes him great by giving him glory and great things to do (5:20-30; 10:17ff.; 17:23-26).
-• “To all who did receive him (Jesus), who believed in his name, he gave power to become children of God, who were born... of God” (John 1:12ff.).
-• "Almighty" - he can and will do all that he intends.
-• *Whatever the Lord pleases, he does, in heaven and on earth, in the seas and all deeps.* Psalm 135:6.
-• This doesn't negate human choices and responsibility.
-• Verses showing Jesus as son
-• “No one knows the Father except the Son and anyone to whom the Son chooses to reveal him” (Matthew 11:27).
-• the Son loves the Father (John 14:31) and always does what pleases the Father (8:29).
-• God “did not spare his own Son but gave him up for us all” (Romans 8:32): that was the measure of his love (cf. Romans 5:5-8)
-• Verses showing Spirit as distinct
-• Trinity: not three seperate Gods, trinity. And yet, trinity blows our mind.
-• Missions of God: The Father send the Son; the Father and the Son sent the Spirit
-• The Father made me; the Son saved me; the Spirit changes me
-• What this means for Christian living: we can know God the Father, we can change
-• Interview: how has life changed since becoming a Christian?
-• Other relevant verses for this week: John 1:1–18, "Have we not all one Father? Has not one God created us?" Malachi 2:10
+
+• Trinity = 1 God, 3 persons. Christians hold that there is one God—not multiple. Christians also hold that God exists as three persons—Father, Son, Spirit. This is mysterious, and nobody understands it perfectly. We believe that God is a tri-unity because this is how God reveals Himself to people.
+
+• Christians believe in the trinity because the Bible speaks of the trinity. It served as a sort of greeting, or blessing, in the early church. Paul writes: "May the grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all." (2 Corinthians 13:14).
+
+• To explore the persons of the trinity, we will unpack some lines from the Apostles' Creed that describe the Father and the Son—next week we will discuss the Spirit. We won't have time to cover everything but if there are lines you have questions about, ask those questions in question time.
+
+#### Father
+
+• ***God, the Father Almighty***. We believe God is a father in that we come from Him, He provides for us, and cares for us.
+
+• When Jesus taught his disciples to pray: This is how you should pray:
+“Our Father in heaven...” (Matthew 6:9). In many languages, the word given for dad is often what babies naturally say early on because it's the easiest word to say. "Dada", "Tata", "Papa". In the Hebrew, the intimate word for Father is "Abba", and that's the word Jesus uses when he's teaching his disciples to pray. Prayer in one sense is like talking to our dad like a toddler talks to its dad.
+
+• But prayer is not exactly like talking to dad, because God is "almighty"—he can do anything. In fact, he is the ***creator of heaven and earth***.
+
+• Genesis 1:1: "In the beginning God created the heavens and the earth." Some people reject Christianity because they can't believe the story of how God created the world in Genesis. However, we must understand that the story in Genesis is not there to explain how God created the world. It's not a scientific account or a historical recount. Instead, it's a theological account. It is there to teach us: that the world was created,  who created it, and what place people have in the world as created beings.
+
+#### Son
+
+• I don't believe in God simply because I think the world needs a creator—though that is a factor. I primarily believe in God because of Jesus—who he was in history.
+
+• ***I believe in Jesus Christ, his only son, our Lord*** — we call Jesus the "Son of God" because he was sent by God and he submits himself to the will of the Father. It's not because we believe the Son of God was created—we believe Jesus is eternal. It's not because we think Jesus is less than God—we believe He is fully God. It's because he was sent from the Father that we call him son, as the Bible does.
+
+•  The word Christ is a Greek word with the same meaning as the Hebrew word Messiah: anointed one. In the Old Testament, and today, people anoint chosen rulers, i.e. kings. God had promised in the centuries leading up to Jesus through prophets that he would send an everlasting King. "I will raise up your offspring after you… I will establish the throne of his kingdom forever." — 2 Samuel 7:12–13. People in Jesus time were waiting for a forever-king, and the claim that Jesus is the "Christ" is a claim that he is that king that the people expected.
+
+• It might therefore surprise you when you read that this supposed king ***was crucified, died and was buried*** — why would the king die like a criminal?
+
+• The Bible says that Christ died for a reason, and it has to do with us. The apostle Paul writes to a church in the first century: "Christ died for our sins according to the Scriptures." (1 Corinthians 15:3). Sin is what we call our rejection of God, and it is the greatest spiritual crime there is. If God created us, sustains us, and gives us a certain way to live and relate to him, it is our responsibility as His creatures to obey Him. If we reject Him, we cut ourselves off from life itself, and we deserve death.
+
+• When Jesus died, he took our sin on Himself and bore the penalty that we deserve. Jesus says that whoever believes in Jesus' death can be cleansed of the guilt and enter into a restored relationship with God. Hundreds of years before Jesus a prophet named Isaiah described the death of the Messiah in this way, "He was pierced for our transgressions ... by his wounds we are healed." (Isaiah 53:5). Christians interpret this verse as a prophecy foretelling Jesus' death and its spiritual implications — Jesus' death brings healing for all who trust in Him.
+
+• How do we know Jesus died for our sin? Because ***On the third day he rose again from the dead*** — this is a miracle which demonstrates Jesus' trustworthiness and his kingship. He conquered sin and death for us.
+
+• I believe Jesus' resurrection happened because it was conveyed by many eyewitnesses who had nothing to gain in speaking openly about his resurrection. The apostle Peter writes: "We are witnesses of everything he did ... God raised him from the dead on the third day and caused him to be seen." (Acts 10:39–40). Peter died defending his faith, as did many other disciples. People die for all sorts of things, but nobody dies for a claim they know to be false. The disciples' boldness in spreading the news of Jesus' resurrection is one piece of evidence which bolsters our confidence that Jesus is risen.
+
+• The spiritual implication of the resurrection is that Christians don't view death the same way anymore, because we believe there is something beyond death. The apostle Paul writes: "We believe that Jesus died and rose again, and so we believe that God will bring with Jesus those who have fallen asleep in him." (1 Thessalonians 4:14).
+
+• Jesus rose and ascended to heaven, and Christians believe that ***from there he will come to judge the living and the dead***. I don't know how or when Jesus will return, but I trust he will, because he has already demonstrated his reliability through his resurrection.
+
+• God's judgement is good news, because justice is good. When someone commits a crime, we want there to be justice. The Bible says: "God will bring every deed into judgment, including every hidden thing, whether it is good or evil." (Ecclesiastes 12:14).
+
+• God's justice is good news until we realise that we ourselves are guilty of not obeying God and not loving others as we ought. But because Jesus died for sins, if we trust in him we can be forgiven. This means that when Jesus returns, those who trust in him will not be punished for their wrongdoing. Paul says: "There is now no condemnation for those who are in Christ Jesus." (Romans 8:1).
+
+• Next week we will explore what Christians mean when we say ***I believe in the Holy Spirit***. For now, to summarise what we've seen, we might express the relationship between Father, Son, and Spirit as follows: the Father loves us; the Son lived among us; the Spirit lives in us.
+
+• Discussion / Question Time.
+
 
 # Week 3: Forgiveness, Resurrection, Life
 
