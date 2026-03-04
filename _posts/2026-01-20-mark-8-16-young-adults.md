@@ -7,7 +7,7 @@ title: "The Challenge of Mark 8–16 for Young Adults"
 
 In the first half of Mark's gospel, the central question driving the entire narrative is "who is this man?" In Mark 8, Peter answers that question: "You are the Messiah." The rest of the gospel is about finding out what it means that Jesus is the Messiah.
 
-Here I want to outline some key passages and cutting questions that may be useful for young adults studying the second half of Mark's gospel.
+Here I want to outline some key passages and cutting questions that may be useful for young adults studying the second half of Mark's gospel. These questions are asked in the context of a study where the first activity is to read the passage and spend time generating and sharing questions from the text.
 
 #### Mark 10:13–31
 
@@ -32,5 +32,15 @@ Here I want to outline some key passages and cutting questions that may be usefu
 2. What is the product, or the fruits, that Jesus wants from you in your life at the moment? Are any of these fruits lacking in your life?
 
 3. Do you have a prayer life? If not, what is stopping you? If yes, what threatens to stop it?
+
+#### Mark 12.13-44
+
+1. What is the most difficult exam you've ever had?
+
+2. What does it mean to "give to God what is God's" as a student and as a worker?
+
+3. Has your love for God deepened in the past 12 months? If so, how?
+
+
 
 
