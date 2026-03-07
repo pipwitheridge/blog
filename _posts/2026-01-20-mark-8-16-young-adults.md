@@ -41,6 +41,16 @@ Here I want to outline some key passages and cutting questions that may be usefu
 
 3. Has your love for God deepened in the past 12 months? If so, how?
 
+#### Mark 13
+
+1. Have you ever pulled an all-nighter? If so, why?
+
+2. Jesus urges everyone to be on guard and be alert. What might this practically look like for you?
+
+3. What stops you from being alert about the future Jesus foretells?
+
+
+
 
 
 
