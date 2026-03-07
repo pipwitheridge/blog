@@ -194,3 +194,5 @@ Another objection to Christianity is: **Aren't all gods the same?** However, the
 • Jesus says: **"I have come that they may have life, and have it to the full." (John 10:10)**.
 
 • Interview with someone on how being a Christian has changed their life.
+— How did you become a Christian?
+— How does being a Christian change the way you live?
