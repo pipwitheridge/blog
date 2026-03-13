@@ -11,8 +11,6 @@ Below is the scaffolding of a 3-week evangelistic course based on the Apostles' 
 
 # Week 1: Belief in God
 
-#### An introduction to exploring Christianity
-
 • Introduction / get-to-know-you question: **have you ever been on a journey?**
 
 • There are two kinds of maps: a **large-scale map** that has lots of detail of a small area, and a **small-scale map** that has a small amount of detail but covers a large area. Both maps are highly valuable depending on your goal. Reading the Bible is like reading through a collection of large-scale maps—it takes a long time but you get more detail as you go.
