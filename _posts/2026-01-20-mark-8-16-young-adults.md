@@ -5,7 +5,7 @@ title: "The Challenge of Mark 8–16 for Young Adults"
 
 *January 2026*
 
-In the first half of Mark's gospel, the central question driving the entire narrative is "who is this man?" In Mark 8, Peter answers that question: "You are the Messiah." The rest of the gospel is about finding out what it means that Jesus is the Messiah.
+In the first half of Mark's gospel, the central question driving the entire narrative is: who is Jesus? In Mark 8, Peter answers that question: "You are the Messiah." The rest of the gospel is about finding out what it means that Jesus is the Messiah, and what it means to follow Him.
 
 Here I want to outline some key passages and cutting questions that may be useful for young adults studying the second half of Mark's gospel. These questions are asked in the context of a study where the first activity is to read the passage and spend time generating and sharing questions from the text.
 
@@ -49,8 +49,16 @@ Here I want to outline some key passages and cutting questions that may be usefu
 
 3. What stops you from being alert about the future Jesus foretells?
 
+#### Mark 14.1–26
 
+1. What is the signifiance of sharing the Lord's Supper together in church? Do you find this a helpful exercise—why or why not?
 
+#### Mark 15–16:1–18
 
+1. Do you think our society finds it easy or difficult to talk about death? Why?
+
+2. Why did Jesus die? Are there lots of reasons, or one big reason?
+
+3. What would you say to a friend who said there is no reason to believe that Jesus rose?
 
 
