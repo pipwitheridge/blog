@@ -101,11 +101,11 @@ Because if the resurrection is true, it's scary. If death is not the end, our li
 
 If you think death is the full-stop, your life sentence can contain whatever you want it to contain—it doesn't really matter. But if death is a comma into something else, and that something else is very much shaped by the life we lead now, then all of a sudden life is very important.
 
-It matters that we respond to God's offer of reconciliation. Put your faith in Jesus. Entrust your life to Him. Pray and ask his forgiveness. And then walk in newness of life.
-
 ## Scary good news in the face of death
 
-C.S. Lewis said that his conversion to Christianity was a long process. He was a reluctant convert. He says that even as someone who was agnostic about God he came to see Christianity as good and beautiful. The final domino fell when he came to see it as true.
+For those who know Jesus you know that the resurrection doesn't simply raise the stakes of life and death; it brings hope in the face of death. It is good news—it means we can actually live life to the full, into eternity.
+
+Perhaps you're here today and you realise the hope Jesus brings, but it is still hypothetical—not concrete—for you. C.S. Lewis said that his conversion to Christianity was a long process. He was a reluctant convert. He says that even as someone who was agnostic about God he came to see Christianity as good and beautiful. The final domino fell when he came to see it as true.
 
 One evidence for the resurrection that struck Lewis, as it strikes many of us, is the way Jesus' disciples changed after Jesus' death. Before Jesus' death, the disciples were self-centred and cowardly. But not long after Jesus' death, the disciples were filled with courage and proclaimed the gospel to their deaths. How does such transformation happen?
 
