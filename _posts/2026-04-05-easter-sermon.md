@@ -25,7 +25,7 @@ One of the guys—his name was Alex—was a gifted salesman. He led the sales te
 
 The marketing guy—his name was Rick—was larger than life. He was a real friend of mine. He loved life. He was a bit different to the other guy in that he didn't live for his work; he lived for the weekend. He didn't think in quarters; he seemed live life one week at a time. He loved Friday beers. He loved the weekend. He loved his place which he rented in Mosman. One week, maybe on a whim, he went on this scuba diving holiday, and during one of the dives he descended too deep too quickly. He passed out and died.
 
-Now if you had asked these guys during their life if they feared death, I'm pretty sure they would have said no. Knowing Rick, he might have quoted someone like Mark Twain who said : “I don't fear death because I was dead for billions and billions of years before I was born, and I didn't suffer the slightest inconvenience from it.”
+Now if you had asked these guys during their life if they feared death, I'm pretty sure they would have said no. Knowing Rick, he might have quoted someone like Mark Twain who said : “I was dead for billions and billions of years before I was born, and I didn't suffer the slightest inconvenience from it.”
 
 Maybe that's how you feel about death. It's not on your mind much. It's certainly not something you actively take to heart when you think about your week, or your next three months.
 
@@ -39,29 +39,27 @@ Easter is a chance to turn down the music of life and face head on the rattle of
 
 Jesus' own brother, James, writing in the first century put down a challenge to anyone going about their daily business. He said: ***"What is your life? You are a mist that appears for a little while and then vanishes."* (James 4:14)**.
 
-If we are to face death head on, the first thing we must admit is that life is short and death is soon. When you realise that death is not long off for any of us, that brings clarity to life. Most peoples' experience of life is not that time slows down as you get older but that it actually seems to go by faster.
+I wonder if you've ever woken up early to a thick mist outside, only for it to disappear before mid-morning. That's what we are like. Here one moment, gone the next. I turned 31 last week and I said to my wife that I'm probably about a third of the way through life and she said it might be closer to half—a sobering moment!
 
-I turned 31 last week and I said to my wife that I'm probably about a third of the way through life and she said it might be closer to half—a sobering moment!
+If you were to ask someone older than me, you might be disappointed to hear that as you get older, time doesn't normally seem to slow down; it actually seems to go by faster.
 
-As a pastor I get people asking me about life and death. One question that sometimes comes up is whether it is true that right before you die, your life flashes before your eyes. And my standard response is, yes, that does happen—it's called life! Life goes by so quickly that by the time you're on your deathbed it'll have felt like a flash before your eyes.
+As a pastor I do get people asking me about life and death. One question that sometimes comes up is whether it is true that right before you die, your life flashes before your eyes. And my standard response is, yes, that does happen—it's called life! Life goes by so quickly that by the time you're on your deathbed it'll have felt like a flash before your eyes.
 
-But here's the thing. The worst thing about death is not that it comes so soon. The real sting of death is not that your success and reputation in life will soon be forgotten.
+But here's the thing. The worst thing about death is not that it comes so soon. The real sting of death is not that it cuts you off from doing those things you want to do in life. The real sting of death is not even that it causes grief for those around you.
 
 There is a verse in the Bible that tells us what the real sting of death is. It's written by the Apostle Paul. He says: ***"The sting of death is sin."* (1 Corinthians 15:56)**.
 
-Sin is a spiritual idea about our attitude toward God. If you don't believe in God, suspend your disbelief for a moment to get this idea.
+Sin is a spiritual idea about our attitude toward God. The Bible says that God created everything for a reason. He created people for a purpose, to enjoy a relationship of reciprical love with God.
 
-Assume for a moment that there is a God who created everything for a reason. He created people with a purpose in mind, to enjoy a relationship of reciprical love with God.
+The Bible says that all humanity have chosen a different path. We have not lived as God made us to live. We have all done things we shouldn't do and we've all not done things we should do. We have all rebelled against the way of life God sets out for us. More than that—by our thoughts, words and actions, we have all rebelled against God Himself.
 
-The Bible says that all humanity rebels against God continually as we choose our own way over God's way.
-
-The Bible says that the spiritual crime of rejecting our God carries an eternal penalty—we become subject to death and eternal judgement.
+The Bible says that the spiritual crime of sin carries an eternal penalty—we become subject to death and eternal judgement.
 
 If this is true, then the real sting of death—the real reason why death should weigh on our minds—is because we are all guilty of sin.
 
 ## The one who conquered death
 
-But the Bible says there is hope because though we reject God, God does not reject us—he reaches out to offer us reconciliation. This offer comes as a real, flesh and blood offer. It comes through the life, death and resurrection of Jesus.
+But the Bible says there is hope because even though we reject God, God does not reject us—he reaches out to offer us reconciliation. This offer comes as a real, flesh and blood offer. It comes through the life, death and resurrection of Jesus.
 
 During his life Jesus called people to believe in him and follow him as the one person who could reconcile people and God.
 
@@ -69,29 +67,37 @@ The Bible says that Jesus was a person without sin, unlike anyone else in all hu
 
 The Bible portrays Jesus as both fully man and fully God; one suitable to bring the two together. And his death was both human and divine: on the one hand Jesus died according to the plot of his enemies; on the other hand, Jesus died according to the plan of God.
 
-The Bible says that Jesus' death was a sacrificial death. Jesus died for us. He died to take on himself a penalty for a crime he didn't commit—the spiritual crime of sin.
-
 You might think that the worst thing about Jesus' death was that he was taken too soon. He died in His early thirties.
 
 You might think that the worst thing about Jesus' death was that when he died his friends had deserted him and that peoples' final judgement on his life was negative.
 
 You might think that the worst thing about Jesus' death was the physical pain that accompanied it.
 
-Yet the real sting of Jesus' death was sin. As Jesus died he took on himself the sin of the world and with it, took the penalty of sin for us.
+Yet the real sting of Jesus' death was sin. As Jesus died he took on himself the sin of the world and with it, took the penalty of sin for us. The Bible says that Jesus' death was a sacrifice which atoned for our sin.
 
-Now, this is a great spiritual claim, that Jesus has paid the penalty for our sin. The problem with spiritual claims, though, is that they are just that—spiritual; invisible; hard to test. How can we begin to assess whether there is any truth to it?
+Now, this is a great spiritual claim, that Jesus has paid the penalty for our sin. The problem with spiritual claims, though, is that they are just that—spiritual; invisible; hard to test.
 
-Well, here's one way to think about it. Question: If someone goes to jail as penalty for a crime—how do we know the penalty has been paid and the judge satisfied? Answer: When the jail doors open and the prisoner goes free.
+We all know the feeling of someone saying, "I forgive you", but by their actions they show they are holding a grudge and forgiveness has not really happened. How do we know Jesus' death makes us reconciled to God?
+
+Well, here's one way to think about it. If someone goes to jail as penalty for a crime—how do we know the penalty has been paid and the judge satisfied? Answer: When the jail doors open and the prisoner goes free.
 
 Jesus went to death for us. Yet on the third day he walked free, because the penalty had been paid and the judge satisfied.
 
-This is not just a spiritual claim—it's a historical one. One we can get our hands on. We read the account in Mark's gospel. The women came to the tomb, and from Mark 16 verse 4 it says:
+This is not just a spiritual claim—it's a historical one. One we can get our hands on. We read the account in Mark's gospel.
 
-***But when they looked up, they saw that the stone, which was very large, had been rolled away. As they entered the tomb, they saw a young man dressed in a white robe sitting on the right side, and they were alarmed. “Don’t be alarmed,” he said. “You are looking for Jesus the Nazarene, who was crucified. He has risen! He is not here. See the place where they laid him. But go, tell his disciples and Peter, ‘He is going ahead of you into Galilee. There you will see him, just as he told you.’”* (Mark 16:4–7)**.
+The women saw where Jesus was laid in the tomb. Then, after the Sabbath, they went to anoint Jesus' body with spices. They got up early and went to the tomb, and from Mark 16 verse 4 it says:
+
+***But when they looked up, they saw that the stone, which was very large, had been rolled away. As they entered the tomb, they saw a young man dressed in a white robe sitting on the right side, and they were alarmed. “Don’t be alarmed,” he said. “You are looking for Jesus the Nazarene, who was crucified. He has risen! He is not here. See the place where they laid him. But go, tell his disciples and Peter, ‘He is going ahead of you into Galilee. There you will see him, just as he told you.’”* (Mark 16:4—7).**
 
 And here is the final verse in the whole book of Mark's gospel—verse 8: ***"Trembling and bewildered, the women went out and fled from the tomb. They said nothing to anyone, because they were afraid."* (Mark 16:8)**.
 
-It ends on a note of fear—the women trembling—and rightly so. Because if the resurrection is true, it's scary. If death is not the end, our lives really matter—that's scary.
+And that's it. That's the end of Mark's gospel. You might wonder why it ends like that. I do too.
+
+It is possible that Mark ends so abruptly because what he wants us to feel as we read these final lines is not comfort, but discomfort. Mark is writing into a context likely some years after the death of Jesus, and so much of the news of Jesus' resurrection has already spread about. People knew the claims: Jesus resurrected, appeared to many people, ascended into heaven, and is returning to bring about justice and judgement. Mark's gospel serves as the beginning of that good news, and he gets us right to the point in the story where we must turn down the music of all that's going on and ask the question: what does all this mean?
+
+It's interesting that in none of the gospel accounts does someone see the empty tomb and immediately put all the pieces together and believe. What we see is a very human, natural reaction: alarm, fear. Other gospel accounts have joy mixed in with the fear, but Mark ends his gospel on a note of fear and shock and awe.
+
+Because if the resurrection is true, it's scary. If death is not the end, our lives really matter—that's scary.
 
 If you think death is the full-stop, your life sentence can contain whatever you want it to contain—it doesn't really matter. But if death is a comma into something else, and that something else is very much shaped by the life we lead now, then all of a sudden life is very important.
 
@@ -117,7 +123,7 @@ We can give up our own interests in pursuit of the good of other people because 
 
 We can lay aside the burden of careerism, the burden of having to win some great victory for humanity in our lifetimes, because we know Jesus has won the only victory that really matters in the end—victory over sin and death.
 
-We can enjoy the music of life not as a distraction from death, but as good gifts from a God who Himself has undone the curse of death for us.
+We can enjoy the music of life—our work and rest—not as a distraction from death, but as good gifts from God who Himself has undone the curse of death for us.
 
 We can take off the shackles of our fear of death and walk in newness of life with no fear of what is to come, because He is risen.
 
