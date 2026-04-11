@@ -9,7 +9,11 @@ The below post is for a sermon on Exodus 19, delivered to all services.
 
 ---
 
+
+
 # Notes
+
+Preliminary big idea: God chose what was weak to demonstrate his power.
 
 Nothing special --> Something special
 
@@ -102,6 +106,16 @@ D. Alexander - Whereas Gen. 1 – 3 records the expulsion of human beings from G
 D. Alexander: "What God desires for Israelites in the Old Testament prefigures a greater spiritual exodus, involving all the nations of the world, that comes through Jesus Christ."
 
 D. Alexander - Although God comes to establish a special relationship with the Israelites, a safe distance must be maintained between deity and people. Not only are the Israelites prohibited from ascending the mountain, but God conceals something of his glory from them by means of a thick cloud. As Niehaus remarks: This is the Old Testament dilemma. God wants to reveal himself to humanity, and humanity needs to have a revelation of God. God’s presence is our life, as the Aaronic blessing well shows. But in the Old Testament that presence must be partly an absence. The self-revelation of God must also be a self-concealment of God.
+
+Possible intro:
+
+Imagine we could listen to all the life stories of all the Christians in this room and their journey with God. What common threads would emerge? Perhaps we would hear: God rescued me; I was baptised; I faced and still face trials and temptation; I am growing in my understanding of what God wants of my life; I look forward to heaven.
+
+Those are common threads of the Christian life. When we come to the book of Exodus, we realise that Israel's story is essentially that story. God rescued them from slavery, they were baptised—they went down and up through the water of the Red Sea, they faced temptation (in the wilderness), God taught them how to obey Him (through the law), and then they looked forward to that land that God had promised them, a land beyond anything they had known or anything they deserved.
+
+As we come to study the latter half of the book of Exodus, we can look at Israel and say, "Look, there I am; this is what my life is like." But the main reason to study Exodus is to say, "Look, there God is, rescuing and redeeming a people for Himself, just as He continues to do today."
+
+-- Point out that the goal of this sermon is to get us grounded, oriented in the book of Exodus for the term ahead.
 
 Possible structure:
 1. Rescued from slavery
