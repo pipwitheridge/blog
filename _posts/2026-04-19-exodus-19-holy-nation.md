@@ -9,6 +9,81 @@ The below post is for a sermon on Exodus 19, delivered to all services.
 
 ---
 
+## Introduction
+
+Today we begin a new series in the second half of Exodus.
+
+There are lots of reasons to study Exodus. The person who doesn't believe any of its content will nevertheless enjoy studying it because Exodus is, in its own right, a good story. Hollywood has had several goes at it because it is captivating. That God would demonstrate his power by rescuing a nation of slaves, sending ten plagues on their captors, each worse than the last, before splitting the great Red Sea in two so that the slaves could walk on dry land to freedom—that is a great story in its own right.
+
+But for the believer it takes on another level. Because not only is it a good story; for the Christian, it is also our story. It's a pattern of how God works to save not just Israel, but all people. Ask a Christian about their journey with God and they'll tell you the Exodus story: I was a slave, God won a great victory for me over that which kept me captive, and I was rescued completely by God's power and mercy. My chains are gone; I've been set free.
+
+We study Exodus to understand who we are, but we primarily study Exodus to understand whose we are. That is, the Exodus story is a window into the character of God.
+
+It's also a window into the life of Jesus. Exodus begins with a child being born, a tyrant who threatens his death, an escape from Egypt, a passing through the waters, a testing in the wilderness, the giving of the law on a mountain, and the formation of a new people of God.
+
+In the Gospel of Matthew, Jesus is born, a tyrant threatens his death, he escapes to Egypt and then comes out, he passes through the water of John's baptism, he is tested in the wilderness by the devil, he delivers the law afresh in his sermon on the mount, and then he forms a new people—he calls his twelve disciples.
+
+So, if you want to understand your own story better, if you want to understand God better, and if you want to understand Jesus better, study the book of Exodus.
+
+Let's do it now. We're beginning in the second half of Exodus because a little while ago we studied the first half. Those sermons are online, but I will also provide a quick recap of what happened. Actually, we'll just look at the recap that we get at the beginning of chapter 19. Turn in your Bibles to Exodus 19 and let's read the first few verses.
+
+## 1. Rescued by God
+
+***"On the first day of the third month after the Israelites left Egypt—on that very day—they came to the Desert of Sinai. After they set out from Rephidim, they entered the Desert of Sinai, and Israel camped there in the desert in front of the mountain. Then Moses went up to God, and the Lord called to him from the mountain and said, “This is what you are to say to the descendants of Jacob and what you are to tell the people of Israel: ‘You yourselves have seen what I did to Egypt, and how I carried you on eagles’ wings and brought you to myself."* Exodus 1:1–4**
+
+Let's pause there. Part of the way God works in the world is He chooses that which is weak, and makes it strong. The reason God does this is so that people can see with no mistake that God is the one in control, and God is the one who we should lean on.
+
+If you want to demonstrate your skills as a football player, pick the worst team and win them the championship. If you want to demonstrate your skills as a principal, pick a struggling school and turn it around so it tops the state. If you want to demonstrate your skills as an interior designer, go down into the den and make it look nice.
+
+Choose what is weak and do something unbelievable with it. That's what God does. That's how he demonstrates his power.
+
+He chose Moses, though Moses was not good speaker;  He chose twelve disciples who were altogether unimpressive; He chooses you and me if we trust Him, though we are nothing special; and He chose Israel, though they were small and in slavery.
+
+British Theologian Gerald Bray wrote a book called ‘God is Love’, and in it he said this: “Those who study the ancient world from a secular point of view will come across many great men from Mesopotamia, but Abraham will not be one of them. They will examine the great civilizations of Assyria and Egypt, of Babylon, Persia, Greece, and Rome, but Israel (if it figures at all) will hardly be more than a blip on their mental horizon. To write the history of the ancient world putting Israel at the centre is rather like writing the history of Europe from the standpoint of Luxembourg, a country that is geographically central but otherwise insignificant. Yet that is precisely what the Bible does, and the truth of its claim has been borne out by events. It is no exaggeration to say that while the great empires of the past have disappeared into history, the tiny nation of Israel still exists and has spread its wings to the far corners of the globe ... All over the world, children are still named David and Rebecca, but not Nebuchadnezzar.”
+
+How did Israel escape from slavery in Egypt and become a new nation? They did not earn it; they did not strive for it. It was completely an act of God; it is as if they were carried out on Eagle's wings.
+
+And it is the same for the Christian. God saves us from slavery. Now, your journey to becoming a Christian might have involved escape from slavery in the form of addiction.
+
+
+- Why? Not to do with their being deserving; God gets glory.
+- - G. Bray quote.
+- Application for the Christian.
+- - We are rescued --> by God's grace
+- - Gal 5:1 - It is for freedom that Christ has set us free. Stand firm, then, and do not let yourselves be burdened again by a yoke of slavery.
+- - - What slavery might we return to?
+
+## 2. Set apart for God
+
+Now, this being the first in a series of sermons about Israel, it is worth pausing and thinking about what some of you have alraedy thought about—the place of Israel in God's plan today. The Israel–Iran war has many Christian commentators speculating and debating Israel's place in our world today. I want to say two things on this topic, briefly.
+
+First, we cannot alienate Israel in our thinking. All Israelis and Jews are deserving of dignity and respect, because all people are made in the image of God. The violence and vitriol against Jews in the twentieth century, and in our century, was and is evil. The Bondi Attacks were evil. And we mourn with all those in mourning over those attacks.
+
+Secondly, the promises to Israel in the Bible find their fulfilment in Jesus Christ. The promise to Israel of land
+
+- Why (2)? For God; not just for repotting, but for relationship.
+- Ex 19:4–5.
+- CTA = Full obedience and keep covenant (we'll explore in future weeks).
+- New identity = treasured possession.
+- Kingdom of priests & holy nation.
+- - Holy = set apart for a purpose.
+- - Priest = one with access to God. Kingdom of priests = a nation that had direct access to God through his presence in the tabernacle and to which they would come and worship.
+- Application for the Christian.
+- - Not only individual, but a "people" - members one of another.z
+- - Called to obey. Beware "cheap grace".
+- - Set apart for a purpose; get really clear on that purpose.
+- - - But you are a chosen people, a royal priesthood, a holy nation, God’s special possession, that you may declare the praises of him who called you out of darkness into his wonderful light.
+- - - Contra R.C. where a few are made priests; "priesthood of all believers".
+- - - Goal: not to make sacrifices but to proclaim the one who sacrificed Himself for us.
+- - -  Don't forget the priveledge of priesthood, and the responsibility of priesthood.
+
+# # 3. Waiting to approach God
+- Ex 19:16–23.
+- "Journey to Freedom" to worship God
+- Similarities/differences for the Christian
+- - Heb 12:18–24.
+- - Eph 3:12. In him and through faith in him we may approach God with freedom and confidence.
+- - - Even where you are sitting! Let's pray now. (Longer prayer).
 
 
 # Notes
@@ -24,15 +99,11 @@ Israel were a special people with a special vocation: to bless the world.
 — Paul fulfilled this vocation.
 — The church is both the fruit and ongoing fulfilment of this vocation.
 
-Add Heb 12:14b to talk on holy nation
-
 Talk about how Israel was not the first holy person of God.
 
 Add to sermon - Why the second half of exodus? Couldn’t you go straight from escape to entry? No — God is not just about repotting… he’s about equipping his people to live his way, by giving words to live by.
 
 What makes Israel Holy/Special? It is something not earned, but received. At the same time they are called to be different, and God cares about how they live. In the same way, the Christian can at the same time say "I am nothing special" and "I am something special".
-
-British Theologian Gerald Bray wrote a book called ‘God is Love’, and in it he said this: “Those who study the ancient world from a secular point of view will come across many great men from Mesopotamia, but Abraham will not be one of them. They will examine the great civilizations of Assyria and Egypt, of Babylon, Persia, Greece, and Rome, but Israel (if it figures at all) will hardly be more than a blip on their mental horizon. To write the history of the ancient world putting Israel at the centre is rather like writing the history of Europe from the standpoint of Luxembourg, a country that is geographically central but otherwise insignificant. Yet that is precisely what the Bible does, and the truth of its claim has been borne out by events. It is no exaggeration to say that while the great empires of the past have disappeared into history, the tiny nation of Israel still exists and has spread its wings to the far corners of the globe, bequeathing to us not only Judaism but Christianity as well. All over the world, children are still named David and Rebecca, but not Nebuchadnezzar.”
 
 Jesus is the fulfilment of the law and the prophets—and he is the fulfilment of the nation of Israel itself. In Matthew we see that Jesus' life mirrors the life of the nation of Israel.
 
@@ -115,13 +186,34 @@ Those are common threads of the Christian life. When we come to the book of Exod
 
 As we come to study the latter half of the book of Exodus, we can look at Israel and say, "Look, there I am; this is what my life is like." But the main reason to study Exodus is to say, "Look, there God is, rescuing and redeeming a people for Himself, just as He continues to do today."
 
--- Point out that the goal of this sermon is to get us grounded, oriented in the book of Exodus for the term ahead.
-
-Possible structure:
-1. Rescued from slavery
-2. Called to obedience
-3. Given a mission
-
 Don't skimp on the intro to the series. Try to flesh out the Christian experience before turning to Exodus to show its parallels.
+
+What’s the story of Exodus?
+God rescues, God sustains in the wilderness, God provides way to live, God promises a future hope.
+
+Great story! But more than that, if you’re a Christian, this is your story.
+
+And if you’re not a Christian, it reveals what’s required — you are a slave, you need God’s help, the future hope can be yours.
+
+—-
+
+Exodus means road out … we’ve seen the road out, now we see the road to — the journey to freedom.
+
+—-
+
+Maybe your story has involved a journey out of slavery … slavery to addiction, slavery to fear of man … but on the deepest level we are all part of a journey out of slavery and a journey to freedom.
+
+—-
+
+The journey from slavery to royal priesthood… huge. Christianity is not just about information; it’s about transformation.
+
+—
+
+Shawshank redemption — Red asks to go to the bathroom. His boss has to say he doesn’t need to ask; just go. Even when we’re out of slavery, we don’t always believe it and we don’t always live like it.
+
+—-
+
+The problem with seeing ourselves in the story of Israel is we know the story goes bad. But our story is not bound up in Israel’s journey; it’s bound up in Jesus. Matt gospel
+
 
 

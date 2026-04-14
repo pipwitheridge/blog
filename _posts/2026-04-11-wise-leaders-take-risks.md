@@ -7,7 +7,9 @@ title: "Wise Leaders Take Risks"
 
 We all have different approaches to risk. Some of us are risk averse; we like to play it safe. Some of us like risk a bit too much.
 
-Wise leaders take risks. Why? They have the wisdom to know they don't have all the answers, and they have the wisdom to know that the only way to succeed is to try things that might not work. They don't let fear of failure stop them because they know that the path to success is almost always littered with mistakes.
+We know that some risks are foolish: gambling money away at the casino, doing unnecessary stunts with our car on the drive to work, and so on.
+
+But "playing it safe" can also be foolish. As the old saying goes: don't put all your eggs in one basket. Wise leaders tread the line between foolish risk-taking and playing it safe. Wise leaders take wise risks.
 
 Ecclesiastes promotes the wisdom of taking risks. It says:
 
@@ -19,20 +21,23 @@ you do not know what disaster may come upon the land.
 
 The teacher is telling his listeners to try several business ventures—even sending grain abroad—because of the uncertainty of life. "Playing it safe" is actually the unsafe thing to do in a world as unpredictable as ours.
 
-The teacher goes on:
+The teacher concludes this section:
 
-*"Whoever watches the wind will not plant;
-whoever looks at the clouds will not reap.
-As you do not know the path of the wind,
-or how the body is formed in a mother’s womb,
-so you cannot understand the work of God,
-the Maker of all things." (Ecclesiastes 11:4–5).*
-
-Some people think that because God is sovereign, we are well within our rights to play it safe.
-
-
-Sow your seed in the morning,
+*Sow your seed in the morning,
 and at evening let your hands not be idle,
 for you do not know which will succeed,
 whether this or that,
 or whether both will do equally well. (Ecclesiates 11:1–6)*
+
+It might seem humble to play it safe and not try new things. But trying different things stems from intellectual humility: "you do not know which will succeed".
+
+Willingness to try things which may fail requires an identity anchored not in momentary success but in the eternal love of God. Because my identity is in Christ, and because God loves me even when my ministry ideas fail, I can be all the more bold to try ministry ideas!
+
+Willingness to try things doesn't just stem from intellectual humility or a secure identity; it stems from a love for people. If we genuinely care about people coming to know Jesus, or growing as disciples of Jesus, we'll be keen to try things to see what actually makes a difference.
+
+God tells us to do certain things in ministry: proclaim the gospel clearly and faithfully, build each other up in love, work hard for the sake of others. But within the broad commands of God to his servants, there is a lot of scope to try things.
+
+What risks might God want you to take in your ministry areas? What ideas might you try next?
+
+
+
