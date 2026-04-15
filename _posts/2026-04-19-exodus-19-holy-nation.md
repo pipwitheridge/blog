@@ -103,6 +103,10 @@ Part of what it means to obey Jesus is to declare the praises of God who has sho
 
 If you are a Christian, you are part of a royal priesthood, a holy nation, a special possession of God. God didn't choose you because you are special; you are special because God chose you. God didn't choose you because you are holy; you are holy because God chose you.
 
+Coming out of slavery to sin and entering into a royal priesthood of God's people is not always as easy. Getting a new identiy is not straightforward. In the Shawshank Redemption, there's a prisoner called Red who after decades of being in prison gets his freedom. He goes back into society as a free man but he cannot help but act like he's still in jail. He gets a job and his boss gets annoyed at him because he keeps asking permission to use the bathroom. He's acting like he's in prison.
+
+When we're moved from slavery to sin to freedom in Christ we might be out of prison but we sometimes act like we're still there. We fall back into sin, we forget that we were released from it. Part of growing as a Christian is learning to live in accordance with our newfound freedom. To live as one who has been rescued by God, and now has access to God.
+
 Being a priest of God is an enormous priviledge and it carries a weighty responsibility. We each have access to God through Jesus. And Jesus calls on his people to be a channel of God's mercy to the nations, declaring his praises wherever we find ourselves.
 
 Contrary to Roman Catholicism which teaches the priesthood of the few, the Bible paints us a picture of a royal priesthood of all believers. The task of priests today is not to perform sacrifices for the people, but to proclaim the sacrifice Jesus made in his death.
@@ -128,6 +132,10 @@ This is what the author of Hebrews says. He talks about the mountain experience 
 
 ***"You have not come to a mountain that can be touched and that is burning with fire; to darkness, gloom and storm; to a trumpet blast or to such a voice speaking words that those who heard it begged that no further word be spoken to them, because they could not bear what was commanded: “If even an animal touches the mountain, it must be stoned to death.” The sight was so terrifying that Moses said, “I am trembling with fear.” But you have come to Mount Zion, to the city of the living God, the heavenly Jerusalem. You have come to thousands upon thousands of angels in joyful assembly, to the church of the firstborn, whose names are written in heaven. You have come to God, the Judge of all, to the spirits of the righteous made perfect, to Jesus the mediator of a new covenant...".* (Hebrews 12:18–24).**
 
+Maybe your experience of approaching God has felt more like that first mountain, and it's looked more like the experience of Israel at Mount Sinai. Maybe your experience has been one of fear, uncertainty. Maybe your view of God therefore has been of a God who is distant, a God who you cannot get close to and who will not draw close to you.
+
+In Jesus, we are able to come to the very presence of God.
+
 As we continue to study the book of Exodus, the difference between these two mountains will become clearer. But let me encourage you: the more we understand Israel's story, the more we'll understand our own. The more we see God at work in rescuing and restoring and equipping Israel as they look to the promised land, the more we'll understand what God has done in rescuing us and restoring us and equipping us for life as we look to the future hope He has promised.
 
 For now, in Jesus and through faith in Jesus we may approach God with freedom and confidence (Eph 3:12).
@@ -138,8 +146,6 @@ So let's pray to God.
 
 
 # Notes
-
-Holy nation Shawshank analogy prison to freedom not easy — identity and activity tied up in prison — need new identify and new function in newfound freedom
 
 God comes amongst the people in the tabernacle; Moses goes before God on behalf of the people. Jesus is both God amongst mankind and mankind before God.
 
@@ -209,11 +215,17 @@ The journey from slavery to royal priesthood… huge. Christianity is not just a
 
 —
 
-Shawshank redemption — Red asks to go to the bathroom. His boss has to say he doesn’t need to ask; just go. Even when we’re out of slavery, we don’t always believe it and we don’t always live like it.
 
 —-
 
 The problem with seeing ourselves in the story of Israel is we know the story goes bad. But our story is not bound up in Israel’s journey; it’s bound up in Jesus. Matt gospel
+
+---
+
+on declaring -- shorter chatechism -- The chief end of man is to glorify God and enjoy Him forever.
+
+Paul calls Christians "The Israel of God" (Gal 6:6).
+
 
 
 
