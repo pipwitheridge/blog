@@ -5,9 +5,52 @@ title: "Sermon: Holy Time (Exodus 23:10–19; 31:12–18)"
 
 *May 2026*
 
-The below post is for a sermon on Holy Time, Exodus 23:10–19; 31:12–18, delivered to Afternoon and Night Church.
+Semon outline. Holy Time, Exodus 23:10–19; 31:12–18. Afternoon and Night Church.
 
 ---
+
+## Introduction
+• Exodus recap
+• Though we are not under the Mosaic law, it gives us wisdom for life.
+• Goal for today: explore what "Sabbath" (SBT) is and how to rediscover it for ourselves.
+
+## What Sabbath is
+• SBT = "rest" or "stop". Holy time for God. Incl. days and festivals.
+• "The SBT" = a day of rest set apart for God as you "stop" typical work.
+• Why "typical"? Jesus says it is lawful to do good on the SBT (Matt 12:12).
+• Happened on the 7th day (Saturday), Fri night – Sat night.
+• SBT != biological necessity. We can live without SBT; it's called slavery.
+• SBT = spiritual necessity. We need it to live life properly.
+• Not a burden but a blessing; people not built for SBT but vice versa (Mk 2:27).
+• SBT helped Israel love others properly (rest and refreshment for all).
+• Social aspects: gathered worship, singing, hospitality, big meals, friends/fam/spouse.
+• SBT helped Israel love God properly (read 31:17).
+• Religious aspects: worship, scripture/prayer/meditation on creation, rescue, future.
+• Boundaries: prepare house, food, etc (took work) + no work talk.
+• Serious: God commanded it and disobedience carried big penalties (read 31:12–15).
+• Pharisees distorted the command by adding their own commands on top.
+
+## How to rediscover Sabbath today
+• 1. Realise the theological and historical basis for Christian SBT.
+• SBT is rooted in creation; we're not under law but we uphold it; 10C = good.
+• Jesus taught the commands (SoM) and refocused on the heart.
+• The Pharisees got SBT wrong; but the SBT is not itself wrong.
+• Practiced throughout church history (Sunday). Ford made 2-day (Jews/Christians).
+• 2. Acknowledge SBT is both a spiritual necessity and a spiritual battle.
+• Need: We don't face physical death, but a slow spiritual death, if we neglect SBT.
+• Battle: We are sinful and selfish; if we get a day off, who is it for?
+• National battle: AU used to SBT; industry/media battled for Sunday.
+• Church battle: Sunday worship eroded. Parents went to Evensong (pre Countdown).
+• Personal battle: we idolise work; easily distracted; struggle with 1:1 time with God.
+• My journey with Soph... realisation of sin in this area, need to repent.
+• 3. Rejoice in Jesus died for our sins and won us an eternal Sabbath.
+• 4. Commit to keeping a Sabbath day.
+• Choose 24-hour period; doesn't matter which day (see Rom 14:5).
+• Don't be task, but time-oriented on SBT. Entropy = curse (e.g. email) or blessing.
+• Embrace the social aspects (see above).
+• Embrace the religious/devotional aspects (see above).
+• Commit to the boundaries (have big conversations w boss, spouse, friends, etc).
+• Enjoy the gift God gives us!
 
 # Notes
 
@@ -47,6 +90,18 @@ T. Keller – The purpose of Sabbath is not simply to rejuvenate yourself in o
 
 "Sleep is our nightly declaration that we are not God." – anon.
 
+If Jesus on his sermon on the mount talked about Sabbath, what might he say? When he applies the 10 commandments he typically intensifies the command and exposes the heart behind it. You might think he would say something like: "You've heard it said, keep the sabbath day and don't work on it, but I tell you to keep every day holy to the Lord." But I don't think he would say that. I think he would uphold the value of work (as the OT does); I don't think he would call on people to cease their work every day. Instead, I think he might say something like: "You've heard it said, keep the sabbath day holy to the Lord; don't work on it. But I tell you, if your head and your heart are still at work on the sabbath day, you are guilty of grave sin."
 
+There was a terrible school that taught its students to play basketball by giving them books to read on how to play basketball. Once the students had finished their reading, the teachers were content that they had learned to play. How silly! And yet this is sometimes our approach to discipleship. We assume that by reading the Bible, we are learning to follow Jesus. But we are only learning the theory of discipleship. To become basketball players, we must play basketball. To become Jesus' followers, we must follow Jesus.
+
+Going on holidays takes effort to prepare. The more you can clear out of the way before a holiday, the more you might enjoy it. The same is true of the sabbath day. Try to clean the house and set things in order before the sabbath so you can enjoy it.
+
+Problem: too much rest - shouldn’t we spend 6 sermons on work
+
+100 years ago sabbath was socially sacred - church history project tv parents countdown used to worship god Sunday night stopped didn’t know why asked about countdown they said yes every Sunday night - distraction entertainment media is battling for our time and we are often losing the battle - they think in terms of how much time can we carve out, that’s their business model
+
+There are people you can spend time with in group contexts … but how many people do you feel comfortable with in extended 1:1 time… and is God someone who you feel comfortable spending 1:1 time with? Jesus did it often, we should develop a life of it
+
+Workplaces don’t have a theology of work and rest and so often they’ll try and create their place of work as a place of rest … illustration my second marketing job had pool table fun times etc… Google does same … in an attempt to marry work and rest they’ve misunderstood the purpose of rest. The purpose of rest is not so that we can work better. The purpose of rest is so we can worship better.
 
 

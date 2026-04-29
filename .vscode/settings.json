@@ -4,8 +4,8 @@
   // ---------------------------
   "[markdown]": {
     "editor.fontFamily": "Georgia, 'Times New Roman', serif",
-    "editor.fontSize": 19,
-    "editor.lineHeight": 30,
+    "editor.fontSize": 16,
+    "editor.lineHeight": 20,
     "editor.wordWrap": "on",
     "editor.quickSuggestions": {
       "comments": "off",
@@ -15,7 +15,8 @@
     "editor.renderWhitespace": "none",
     "editor.scrollBeyondLastLine": false,
     "editor.cursorBlinking": "smooth",
-    "editor.lineNumbers": "off"
+    "editor.lineNumbers": "off",
+    "editor.rulers": [65]
   },
 
   // ---------------------------

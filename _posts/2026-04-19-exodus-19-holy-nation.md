@@ -9,6 +9,34 @@ The below post is for a sermon on Exodus 19, delivered to all services.
 
 ---
 
+# OUTLINE
+
+INTRO. Easter. Ex=GreatStory,Gods,Ours
+• 1-18=Rescue;Ch19ff=JTF; 19=HolyNatn(Hdngs).
+1. RescuedByGod. • Ch19=Bridge • Ex19:1-4 • Identity=RescuedByGod • KeyToGodCharacter – ChsWeakMksStrong • ILL:Hairdresser,Footballer,Principal • Abraham(old),Moses(spch),David(young),Israel(small/slaves)
+•NoRoomForBoasting; ILL: POVIsraelite = > slave,frog,sea => EaglesWings
+• Christian => NotMe;AllGod => EaglesWings
+2. SetApartForGod • Alleviates->Elevates • Ex19:4-6 • WhatsUrMostTreasuredPoss? • WhatsGods? Galaxies,Marvels…HisPeople
+• HolyNation; Holy=setApart/special – stigma key=notChosenBecauseHoly…hBc
+• forPurpose -KingdomOfPriests; Priest=accessToGod; KoP=everyoneAccessToGod
+• greatPriv+greatResp=ThruYouNationsBless How? DeclarePraise/LightInTheWorld
+• failed; idols, broke covenant, DidntObeyGospel(Rom10:16)
+• NT => Israel = not blood, not geography, but Belief / Spirit => IsraelOfGod(Gal6:16)
+• 1Pet2:9-10:"UareA chosenPeople RoyalPriesthood, HolyNation, God’sSpecial Possession, thatYouMayDeclare praises him called u out darkness into his wonderful light. Once u were not a people, but now you are the people of God; once you had not received mercy, but now u have received mercy."
+• ILL: Today.SpecialIfGoodJob. WhatBestJob? Astro? No-ToDeclareGodsPraises
+• contra R.C. not priesthoodOfFew, PriesthoodOfAllBelievers  - Ur vocation!
+• YouMightNotFeelSpecial; why? StillSlave(ShawshankAnalogy)-addiction(oneChainAttached) – afraidOfYourStandingWithGod…
+3. WaitingToApproachGod • Israel were fearful to approach God.
+• Ex19:16-22 • validFear=unrighteousPeopleBeforePerfectGod
+• KeytToOurHoliness =notOurJobMakeUpIsraelMistakesOrOwn…
+• everyDetExodusFulfilledByJesus– MattGos - Birth-Tyrant-OutOfEgypt-Water(baptism)- TemptedWilderness-CallsPeople (12)-DeliversLawMount(yoke=easy/light)
+• Obeyed->Died- opensGreatSpiritualExodus; fromSlaveryToSin/FearDeath; • CallsUsToObey ==> key: doesn't just dwell among us, dwells in his; givesUsHisSpirit
+• Heb12:18-24 para: "U haven’t come to darkness/gloom/storm; to trumpet blast or to a voice speaking words that those who heard it begged that no further word be spoken to them. But you have come to God, the Judge of all, to the spirits of the righteous made perfect, to Jesus the mediator of a new covenant...".
+• LookFwrdToRestOfSeries
+• Eph3:12 In Jesus and through faith in Jesus we may approach God with freedom and confidence.
+
+
+
 ## Introduction
 
 ==New Series==
@@ -142,7 +170,7 @@ The life of Jesus is the fulfilment of Israel's story. Exodus begins with a chil
 
 As we continue to study the book of Exodus, the difference between Israel's story and our story—the difference between these two mountains—will become clearer. But let me encourage you: the more we understand Israel's story, the more we'll understand our own. The more we see God at work in rescuing and restoring and equipping Israel as they look to the promised land, the more we'll understand what God has done in rescuing us and restoring us and equipping us for life as we look to the future hope He has promised.
 
-For now, in Jesus and through faith in Jesus we may approach God with freedom and confidence (Eph 3:12).
+***For now, in Jesus and through faith in Jesus we may approach God with freedom and confidence.* (Eph 3:12)**.
 
 So let's pray to God.
 
@@ -151,74 +179,24 @@ So let's pray to God.
 
 God comes amongst the people in the tabernacle; Moses goes before God on behalf of the people. Jesus is both God amongst mankind and mankind before God.
 
-Holiness means to be seperated from sin.
-A holy God is dangerous for unholy people.
-
-Exodus 19 is a bridge between the story of Israel getting rescued and the story of Israel getting ready to enter the promised land.
-
 We have been made holy in one sense, and yet the call remains: be holy. What does this mean for the Christian?
-
-The global church is a kingdom of priests. Each Christian has direct access to God and the means to reconcile others to God—the message of the gospel.
 
 Opportunity to counter the Roman Catholic (and Eastern Orthodox?) view of priesthood.
 
-Parallel to Jesus in that God speaks from "the cloud" / from heaven to help people identify and believe in his chocen mediator: Exodus 19:9 The Lord said to Moses, “I am going to come to you in a dense cloud, so that the people will hear me speaking with you and will always put their trust in you.” – tie to 2 Peter 1: 16 For we did not follow cleverly devised stories when we told you about the coming of our Lord Jesus Christ in power, but we were eyewitnesses of his majesty. 17 He received honor and glory from God the Father when the voice came to him from the Majestic Glory, saying, “This is my Son, whom I love; with him I am well pleased.” 18 We ourselves heard this voice that came from heaven when we were with him on the sacred mountain.
+Compare Moses speaking on Mountain to Jesus.
 
-Desmond Alexander overview of Exodus 19ff: Exod. 19 – 40 begins with the arrival of the Israelites at Mount Sinai following their deliverance from Egypt (19:1–2), and concludes with the glory of YHWH filling the tabernacle (40:34–38). At Sinai the Israelites commit themselves to becoming the servants of YHWH, the divine king, forming a unique relationship with the one who has delivered them from bondage to Pharaoh, the king of Egypt. This special relationship, formalized by the making of a covenant, results in YHWH’s coming to live in the midst of his chosen people. To this end much of Exod. 19 – 40 concerns the construction of a special tent that will be YHWH’s dwelling place among his people. Tragically, however, this entire enterprise is almost immediately jeopardized when the Israelites construct an image of their God in the form of a golden bull. This incident very nearly results in the annulment of the covenant that has just been made. Only after Moses intercedes with YHWH, who shows exceptional patience towards the Israelites, is the covenant relationship restored. This enables the construction of the tabernacle to begin. As Exod. 19 – 40 stands, a distinctive plot binds the various episodes together in a coherent and meaningful way.
+God makes his people holy by dwelling among them; but it is not enough; He must dwell in them, and this is what happens in the New Testament.
 
-Vv. 8 — we will do everything the LORD has said — sounds like saying "yes" to a marriage proposal. Since the covenant creates a relationship similar to marriage, the events of chs. 19–24 may be compared to a proposal of marriage (19:4–6), subsequently followed by a wedding (24:3–11). With the benefit of hindsight, we see this "yes" as somewhat tragic. Israel was not faithful to the covenant vows.
-
-D. Alexander on vv. 4–6: Having been rescued from slavery under Pharaoh in Egypt, the Israelites are now presented with the choice of serving YHWH. Should they accept, they as a nation will enter into a unique and privileged relationship with God. In keeping with its message, the language used in 19:4–6 is highly personal, underlining the I–you relationship that exists between God and the Israelites (cf. Fretheim 1991a: 210–211). God addresses the people as a whole, for it is their response as a community that is important for the establishment of this special relationship with God.
-
-D. Alexander - While the idea that every Israelite should have both a royal and priestly status initially seems to run counter to later developments within the nation itself, the covenant relationship finds its roots in the creation account of Genesis, where God intended humanity as a whole to rule as his vice-regents over all other creatures and to enjoy intimate fellowship with God himself. God’s plan for Israel is that the nation should fulfil his creation purpose. ... While the idea that every Israelite should have both a royal and priestly status initially seems to run counter to later developments within the nation itself, the covenant relationship finds its roots in the creation account of Genesis, where God intended humanity as a whole to rule as his vice-regents over all other creatures and to enjoy intimate fellowship with God himself. God’s plan for Israel is that the nation should fulfil his creation purpose.
-
-D. Alexander - Implicit in the expression ‘holy nation’ is the idea of God’s dwelling in the midst of his people, for the presence of God, the Holy One, requires both the people and the land to be holy. The construction of the tabernacle, God’s tent, is vital for the fulfilment of God’s purposes. YHWH’s presence in the midst of the Israelites will distinguish them from all the other nations (cf. 33:16). However, the coming of God among them will have important consequences for the Israelites: they are expected to conform to the perfection and purity of God’s nature (see Lev. 19:2; cf. 11:44–45; 20:26). This ethical dimension of holiness is reflected in the obligations and instructions that God places upon the people through the Decalogue and the Book of the Covenant. As Houtman rightly notes, ‘Israel is not a priestly kingdom and a holy nation until it is obedient to YHWH and lives by the obligations he has imposed’ (1996: 445).
-
-CH Wright - The initiative of God’s redeeming grace is the prior reality on which all that follows will be founded – including the giving of the law, the making of the covenant, building the tabernacle and moving forward to the Promised Land. The life they now live, they live by the grace of God. The life they will be required to live must flow from the same starting point. Of course there is an ethical imperative in these verses – to obey God’s voice and keep God’s covenant. But it is expressed as a condition, not of gaining God’s redemption (for that has already happened) but of fulfilling the mission their identity lays on them. Identity and obedience flow from grace.
-
-D. Alexander - The necessity of obedience to God is constantly underlined throughout the Sinai narrative; indeed, in the Pentateuch it is always central to a harmonious relationship with God. This paradigm of obedience, motivated by love, in response to divine deliverance from bondage also lies at the heart of Christ’s teaching (John 14:15, 21; 15:10; cf. 1 John 5:2–3; 2 John 1:6).
+CH Wright - To obey God’s voice and keep God’s covenant is expressed as a condition, not of gaining God’s redemption (for that has already happened) but of fulfilling the mission their identity lays on them. Identity and obedience flow from grace.
 
 Israel are God's treasured possession. Things will only work out, though, if Israel treasures God above all else as well.
 
-D. Alexander - Whereas Gen. 1 – 3 records the expulsion of human beings from God’s presence, the creation of Israel as a ‘holy nation’ marks the partial restoration of the conditions that existed in the Garden of Eden. This is reflected in the portrayal of the Israelites as royal priests dwelling in a special land, with God living in their midst. While there are parallels to be observed, Israel in Canaan is not a full return to Eden, for access to God is still restricted. The restoration of an ‘Edenic environment’, the goal of biblical history, lies beyond the creation of Israel as a holy nation, for it will involve all the nations of the earth.
-
 D. Alexander: "What God desires for Israelites in the Old Testament prefigures a greater spiritual exodus, involving all the nations of the world, that comes through Jesus Christ."
-
-D. Alexander - Although God comes to establish a special relationship with the Israelites, a safe distance must be maintained between deity and people. Not only are the Israelites prohibited from ascending the mountain, but God conceals something of his glory from them by means of a thick cloud. As Niehaus remarks: This is the Old Testament dilemma. God wants to reveal himself to humanity, and humanity needs to have a revelation of God. God’s presence is our life, as the Aaronic blessing well shows. But in the Old Testament that presence must be partly an absence. The self-revelation of God must also be a self-concealment of God.
-
-Don't skimp on the intro to the series. Try to flesh out the Christian experience before turning to Exodus to show its parallels.
-
-What’s the story of Exodus?
-God rescues, God sustains in the wilderness, God provides way to live, God promises a future hope.
-
-Great story! But more than that, if you’re a Christian, this is your story.
 
 And if you’re not a Christian, it reveals what’s required — you are a slave, you need God’s help, the future hope can be yours.
 
-—-
-
-Exodus means road out … we’ve seen the road out, now we see the road to — the journey to freedom.
-
-—-
-
 Maybe your story has involved a journey out of slavery … slavery to addiction, slavery to fear of man … but on the deepest level we are all part of a journey out of slavery and a journey to freedom.
 
-—-
-
-The journey from slavery to royal priesthood… huge. Christianity is not just about information; it’s about transformation.
-
-—
-
-
-—-
-
-The problem with seeing ourselves in the story of Israel is we know the story goes bad. But our story is not bound up in Israel’s journey; it’s bound up in Jesus. Matt gospel
-
----
-
-on declaring -- shorter chatechism -- The chief end of man is to glorify God and enjoy Him forever.
-
-Paul calls Christians "The Israel of God" (Gal 6:6).
 
 
 

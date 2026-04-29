@@ -3,7 +3,7 @@ layout: post
 title: "Global Mission and the Local Church"
 ---
 
-*April 2026*
+*May 2026*
 
 I've now been a mission pastor for a little over a year. Our church currently has about 1,000 people. I wanted to take some time to write down some things I've noticed about global mission and its support in the local church.
 
@@ -13,11 +13,11 @@ The way I'll approach this topic is by categorising things under three headings:
 
 What are the objectives, or the goals, of the local church when it comes to global mission?
 
-The first and primary goal is that we want to see God's name hallowed all over the earth, His kingdom come and will be done, all over the earth as it is in heaven. That is, we want more and more people from around the globe to know the God who made them. We want God to move people from every tribe, tongue and nation from spiritual deadness to life in Christ.
+The first and primary goal is that we want more people to know and love God. We want God to save more people; we want more people to savour God. We want God to move people from every tribe, tongue and nation from spiritual deadness to life in Christ.
 
 ## Strategy
 
-Strategy is the big picture view of how we will achieve the objective. Strategies can change, but they shouldn't change often, and there should be an obviousness and timelessness about the strategy so that many strategies never change that much at all.
+Strategy is the big picture view of how we (under God) will achieve the objective. Strategies can change, but they shouldn't change often, and there should be an obviousness and timelessness about the strategy so that many strategies never change that much at all.
 
 The strategy for achieving our global mission objective can be summarised in two words: "send" and "support".
 
@@ -25,22 +25,27 @@ We want to send out people into the harvest field to sow the gospel and produce 
 
 We want to support these people through: prayer, finances, encouragement, training, and hospitality.
 
-It is very important we don't confuse our strategy with our objectives. If we do, we might only ever pray according to our strategy. We'll pray for missionary X and Y and their health and wellbeing and courage and so on, but we might forget to pray for the people they are trying to reach with the gospel. If we only ever pray for our missionaries and never for the mission for which we sent them, we will lose sight of God's work in saving the lost and we will lose all motivation ourselves.
+It is very important we don't confuse our strategy with our objectives. If we do, we might only ever pray for our strategy. We'll pray for missionary X and Y and their health and wellbeing and courage and so on, but we might forget to pray for the people they are trying to reach with the gospel. If we only ever pray for our missionaries and never for the mission for which we sent them, we will lose sight of God's work in saving the lost and we will lose all motivation ourselves.
 
 ## Tactics
 
-Tactics are the decisions we make and the actions we take to achieve our broad strategy. Tactics are not big-picture; they are determined by looking at current circumstances and acting accordingly. Tactics can and should change regularly as we notice new needs and conditions around us.
+Tactics are the decisions we make and the actions we take to achieve the broad strategy. Tactics are not big-picture; they are determined by looking at current circumstances and acting accordingly. Tactics can and should change regularly as we notice new needs and conditions around us.
 
-Tactical decisions include such things as:
+Tactical decisions answer such questions as:
 • How you will identify, challenge, equip and send people onto the mission field?
 • Who will you support, and which geographic areas will you focus on?
-• How you (as a church) will pray for missionaries (what will be the time, place, length, frequency, content, etc. of your prayers?)
-• How much will you give? How many people will you give to?
-• How will you encourage and train your misisonaries? Will you outsource this to partner organisations to some extent?
-• How will you offer hospitality and encouragement to missionaries when both when they return home temporarily or permanently?
+• How will you (as a church) pray for missionaries (what will be the time, place, length, frequency, content, etc. of your prayers? Who will pray for them?)
+• How much money will you give? How many people will you give to?
+• Will you support missionaries out of your general church budget or through individual contributors?
+• How will you encourage and train your missionaries? Will you outsource this to partner organisations to some extent?
+• How will you offer hospitality and encouragement to missionaries when they return home temporarily or permanently?
 • What prominence will global mission play in the life of the church? How will global mission fit in with all the other goals of the church?
 • Who will lead the church's support for global mission? How will this responsibility be shared?
-• How will you sustain multiple missionary partnerships in a large church? What role do small groups play in this support?
+• How will you sustain multiple missionary partnerships in a large church? What role (if any) do small groups play in this support?
+
+## Potential Pitfalls
+
+
 
 
 ## NOTES
