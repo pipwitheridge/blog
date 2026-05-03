@@ -5,7 +5,7 @@ title: "Global Mission and the Local Church"
 
 *May 2026*
 
-I've now been a mission pastor for a little over a year. Our church currently has about 1,000 people. I wanted to take some time to write down some things I've noticed about global mission and its support in the local church.
+I've now been a mission pastor for a little over a year. I wanted to take some time to write down some thoughts on global mission in the local church.
 
 The way I'll approach this topic is by categorising things under three headings: Objectives, Strategy, Tactics.
 
@@ -23,7 +23,7 @@ The strategy for achieving our global mission objective can be summarised in two
 
 We want to send out people into the harvest field to sow the gospel and produce a crop of lives transformed by the gospel.
 
-We want to support these people through: prayer, finances, encouragement, training, and hospitality.
+We want to support these people in five main ways: prayer, finances, encouragement, training, and hospitality.
 
 It is very important we don't confuse our strategy with our objectives. If we do, we might only ever pray for our strategy. We'll pray for missionary X and Y and their health and wellbeing and courage and so on, but we might forget to pray for the people they are trying to reach with the gospel. If we only ever pray for our missionaries and never for the mission for which we sent them, we will lose sight of God's work in saving the lost and we will lose all motivation ourselves.
 
@@ -45,25 +45,19 @@ Tactical decisions answer such questions as:
 
 ## Potential Pitfalls
 
+Here are a list of pitfalls I sense in the area of global mission:
+
+1. Confusion over what mission means. Mission means the purpose for which one is sent. Christians are sent to share the love and message of Christ wherever they are. Mission includes both the local and global ministry of word and deed. People who get tunnel-vision about one aspect of mission can detract from a church's efforts in other aspects of mission. If we are too focused on global mission it can have an adverse effect on local mission, and vice versa. If we are too focused on word ministry it can have an adverse effect on deed ministry, and vice versa.
+
+2. Unrealistic expectations. We should expect all Christians to care about what God is doing overseas, but we must remember that a Christian has many concerns, and it might be right that global mission occupies only a fraction of their attention. The same could be said for churches generally. Global mission support is important, but it is not the only important thing in the life of a church, and so we need to think carefully about what fraction of attention it should receive. There should be balance. It is important to have reasonable expectations of churches who support global mission. If a church is made up of a mix of people, some non-believers, some new believers, and believers along the spectrum of maturity, then we must be patient as people change.
+
+3. Dictating rather than inspiring. It is far easier to make someone feel they *ought* to be supporting mission than to make someone feel they *want* to support global mission. Yet it is far less effective to create a sense of ought rather than a sense of want. People want to support global mission when they feel a genuine concern for the lost overseas and when they are convinced that the gospel has the power to save. People can have a global social conscience and yet not be convinced that the gospel is the answer to the world's ills. People can believe the gospel is powerful and yet not feel a genuine concern for the lost overseas. We need to help people see the full picture. We also need to know what actually inspires people. People will be inspired if the missionary work they're meant to support is actually inspiring. The greater the fruitfulness of a missionary, the greater the desire to support that missionary. We also need to know where inspiration for global mission fits in a person's psyche. A person's support of global mission sits downstream conceptually from their other Christian qualities: a decent prayer life, generosity, compassion for the lost, a zeal for evangelism (whether or not they are the ones doing it), relational capacity. To inspire people for global mission, we need to take all this into account.
+
+4. Becoming rigid about tactics. We can confuse strategy for tactics, and vice versa. Our strategy ought to be built on timeless divine direction. Our tactics are built according to circumstances that can change. We need to be honest with ourselves about whether our tactics need changing; this takes humility and courage to look at results even when they are poor.
 
 
 
 ## NOTES
 
-It is far easier to make someone feel they *ought* to be supporting mission than to make someone feel they *want* to support global mission. Yet it is far less effective to create a sense of ought rather than a sense of want.
 
-People want to support global mission when they feel a genuine concern for the lost overseas and when they are convinced that the gospel has the power to save. People can have a global social conscience and yet not be convinced that the gospel is the answer to the world's ills. People can believe the gospel is powerful and yet not feel a genuine concern for the lost overseas.
 
-It is important not to confuse strategy and tactics when seeking an objective. A strategy should not change often (if at all); tactics can change all the time. The strategy for raising global mission support should be something along the lines of: compelling gospel proclamation, clear global mission implications. Tactics might be something like: get each small group to support a missionary, with in-person visits during deputation.
-
-Mission means the purpose for which one is sent. Christians are sent to share the love and message of Christ wherever they are. Mission includes both the local and global ministry of word and deed.
-
-A person's support of global mission sits downstream conceptually from their other Christian qualities: a decent prayer life, generosity, compassion for the lost, a zeal for evangelism (whether or not they are the ones doing it), relational capacity.
-
-We should expect all Christians to care about what God is doing overseas, but we must remember that a Christian has many concerns, and it might be right that global mission occupies only a fraction of their attention. The same could be said for churches generally. Global mission support is important, but it is not the only important thing in the life of a church, and so we need to think carefully about what fraction of attention it should receive. There should be balance.
-
-It is important to have reasonable expectations of people who support global mission.
-
-It is important to have reasonable expectations of churches who support global mission. If a church is made up of a mix of people, some non-believers, some new believers, and believers along the spectrum of maturity, then we must be patient as people change.
-
-The greater the fruitfulness of a missionary, the greater the desire to support that missionary.
