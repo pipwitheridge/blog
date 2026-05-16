@@ -49,7 +49,7 @@ and on the seventh day he rested and was refreshed.’" ---
 • Recap: a gift from God, holy time for God, for love (others/God) & witness to world.
 • Something for us today? My answer yes.
 
-## How to rediscover Sabbath today (3 Steps)
+## How to rediscover Sabbath today (4 Steps)
 • 1. Embrace the wisdom of the Sabbath.
 • Is Sabbath bad? Jesus had issue with Pharisees; how they did it, not that they did it.
 • Pharisees distorted SBT—human rules layered above (e.g. didn't do good; Matt 12:12).
