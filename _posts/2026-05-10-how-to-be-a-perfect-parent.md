@@ -60,7 +60,7 @@ When you look at how God relates to His people—with patience, with forgiveness
 
 ## Hope for imperfect parents
 
-I love my daughter, but I know I am not a perfect dad. When I think about the mistakes I've already made as a parent, and when I think ahead to all the potential mistakes I'll make as my daughter grows up, it's easy for me to feel despair. And yet, my despair turns to joy when I realise that God cares for me more than I could possibly dream. God cares for me like a child. 1 John 3:1 says, "Behold what manner of love the Father has bestowed on us, that we should be called children of God!"
+I love my daughter, but I know I am not a perfect dad. When I think about the mistakes I've already made as a parent, and when I think ahead to all the potential mistakes I'll make as my daughter grows up, it's easy for me to feel despair. And yet, my despair turns to joy when I realise that God cares for me and my daughter more than I could possibly dream. God cares for me like a child. 1 John 3:1 says, "Behold what manner of love the Father has bestowed on us, that we should be called children of God!"
 
 It is liberating to know that God's love for me doesn't depend on my performance as a parent. It also gives me deep comfort to know that God wants to help me as a parent. If you feel like an imperfect parent, it's probably because you are—in fact, we all are!
 
