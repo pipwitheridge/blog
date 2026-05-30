@@ -12,3 +12,7 @@ The below post is for a sermon for Global Mission Sunday, focusing in on the gre
 # Notes
 
 Connect Moses not seeing full glory to Jesus John 1 we see the glory of god + and not entering promised land then seeing Jesus face to face in transfiguration IN PROMISED LAND
+
+GMS — Jesus view was of ambitious growth; told 11 men to go make disciples of all nations.
+
+GMS — the kingdom of god like a mustard seed; starts tiny and grows to be the biggest of all plants
