@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Sermon: 3 Things To Know About God"
+title: "Sermon: This is love"
 ---
 
 *June 2026*
@@ -10,15 +10,20 @@ The below post is for an evangelistic sermon at youth group.
 ---
 
 
-## He is real
+## This is love
 
-## He loves you
-
-## You need him
+• What is love? Sometimes you just know it when you see it. If you could look at my life in 2010 during the FIFA world cup, you'd see that I love soccer... I gave up sleep, money, school work. My parents were loose—let me take a week off school!
+• We measure love by sacrifice. The more precious the thing given up, the greater the love it shows.
+• Andy Milne illustration—sold his house so he can go to the world cup!
+• Bible gives us the biggest and most important story of love ever. And it's about a great sacrifice. Greater than giving up a house...
+• It's not about our love for God; actually—we don't love God nearly as much as we ought! We ignore God; instead of sacrificing for God, the story of my life is more like someone who steals from God.
+• Have you ever stolen something? Instead of giving God what he deserves—our trust, thanks, and obedience—we take his gifts and live as though he isn't there.
+• It's about God's love for us; God sent His precious son for us. Jesus died to show the lengths of his love for us. He died to forgive us for sin.
+• The greatest sacrifice in history shows the greatest love in history—and that love is for you.
+• How should we respond to that love? Thankyou – sorry – please!
 
 # Notes
 
-For Salt evangelistic talk — he’s real, he loves you, you need him
 
 
 
