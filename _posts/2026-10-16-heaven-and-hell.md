@@ -1,11 +1,9 @@
 ---
 layout: post
-title: "Heaven and Hell"
+title: "Exploring What The Bible Says About Heaven and Hell"
 ---
 
 *October 2026*
-
-# Exploring What the Bible Says About Heaven and Hell
 
 ## Weighty Matters
 
