@@ -57,7 +57,3 @@ Here are a list of pitfalls I sense in the area of global mission:
 
 
 
-## NOTES
-
-
-

@@ -56,4 +56,3 @@ Paul did not use this belief as an excuse for laziness. Instead, Paul took perso
 We could list plenty of other examples of people in the Bible who demonstrated a sincere belief in God’s sovereignty and yet took responsibility for their own actions and called on others to do the same. Jesus would be on that list.
 
 When people ask me how it is that Christians can live with predestination, I typically point them to the Bible where we find examples of men and women living by faith in a sovereign God while taking serious responsibility for their own actions.
-```
